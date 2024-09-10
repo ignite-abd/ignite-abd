@@ -6,4 +6,4 @@
 
 🌐 You can find more about me on [my personal website](https://scholar.google.com/citations?user=TQLr9lMAAAAJ&hl=zh-CN&oi=ao).
 
-✉️ And if you want to contact me, please email my mailbox: awangxiaoda@gmail.com.
+✉️ And if you want to contact me, please email my mailbox: xiaoda.wang@emory.edu.
